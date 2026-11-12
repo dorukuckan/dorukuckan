@@ -1,4 +1,4 @@
-# Hi there, I'm Doruk Üçkan 👋
+# Hi there, I'm Doruk Üçkan 
 
 **Electrical & Electronics Engineering Student @ Marmara University**  
 
